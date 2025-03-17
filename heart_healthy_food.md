@@ -13,7 +13,6 @@
 
 - 🍌 **Saging na Saba** – Rich in potassium, fiber, and antioxidants, supports heart health and prevents artery stiffness.
 - 🍠 **Kamote (Sweet Potato)** – High in fiber, potassium, and antioxidants, helps regulate blood sugar and supports heart function.
-- 🍌 **Saging na Saba** – Rich in potassium, fiber, and antioxidants, supports heart health and prevents artery stiffness.
 - 🍋 **Calamansi & Lemons** – High in vitamin C, helps circulation.
 - 🍓 **Berries (Blueberries, Strawberries)** – Anti-inflammatory, lowers blood pressure.
 - 🍌 **Bananas** – High in potassium, helps prevent artery stiffness.
