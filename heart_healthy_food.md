@@ -25,6 +25,7 @@
   - **Walnuts** – Contains omega-3s for heart health.
   - **Pistachios** – Supports blood vessel flexibility.
 - 🥥 **Coconut oil (in moderation)** – Contains good MCTs for energy.
+  - **What is MCT?** Medium-Chain Triglycerides (MCTs) are healthy fats that are easily digested, provide quick energy, and help regulate cholesterol and blood sugar levels.
 - 🫒 **Olive oil (extra virgin)** – Anti-inflammatory, lowers bad cholesterol.
 
 ### **4. Fermented & Probiotic Foods (Vitamin K2 for Arteries)**
