@@ -124,7 +124,7 @@ To prevent bad bacteria from affecting the fermentation process, sterilize your 
 1. Salt the cabbage and soak in water for 1-2 hours.
 2. Rinse well and drain.
 3. Mix all ingredients into a paste (you can use a blender for a smoother consistency) and massage into cabbage.
-4. Pack into a jar, leave at room temp for 2-5 days.
+4. Pack into a jar, press down to remove air pockets, and cover loosely (not airtight) to allow gases to escape. Leave at room temp for 2-5 days.
 5. Store in the fridge and enjoy!
 
 ### **2. Flaxseed Drink**
