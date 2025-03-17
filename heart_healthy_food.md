@@ -104,7 +104,8 @@ To prevent bad bacteria from affecting the fermentation process, sterilize your 
 2. **Boil the jar** by submerging it in boiling water for 10 minutes.
 3. **Let it air-dry upside down** on a clean towel before using.
 4. **Sterilize the lid separately** (boil metal lids, or wipe plastic lids with hot water and vinegar).
-   **Ingredients:**
+
+**Ingredients:**
 
 - 1 medium **Pechay Baguio (Napa Cabbage)**
 - 2-3 tbsp **rock salt** (adjust to taste)
