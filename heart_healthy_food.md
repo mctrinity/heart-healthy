@@ -11,6 +11,9 @@
 
 ### **2. Fruits**
 
+- 🍌 **Saging na Saba** – Rich in potassium, fiber, and antioxidants, supports heart health and prevents artery stiffness.
+- 🍠 **Kamote (Sweet Potato)** – High in fiber, potassium, and antioxidants, helps regulate blood sugar and supports heart function.
+- 🍌 **Saging na Saba** – Rich in potassium, fiber, and antioxidants, supports heart health and prevents artery stiffness.
 - 🍋 **Calamansi & Lemons** – High in vitamin C, helps circulation.
 - 🍓 **Berries (Blueberries, Strawberries)** – Anti-inflammatory, lowers blood pressure.
 - 🍌 **Bananas** – High in potassium, helps prevent artery stiffness.
@@ -93,7 +96,15 @@
 
 ### **1. Homemade Kimchi (Filipino Version)**
 
-**Ingredients:**
+### **Sterilizing the Bottle for Kimchi**
+
+To prevent bad bacteria from affecting the fermentation process, sterilize your jar before use:
+
+1. **Wash the jar thoroughly** with warm water and soap, then rinse well.
+2. **Boil the jar** by submerging it in boiling water for 10 minutes.
+3. **Let it air-dry upside down** on a clean towel before using.
+4. **Sterilize the lid separately** (boil metal lids, or wipe plastic lids with hot water and vinegar).
+   **Ingredients:**
 
 - 1 medium **Pechay Baguio (Napa Cabbage)**
 - 2-3 tbsp **rock salt** (adjust to taste)
@@ -104,14 +115,14 @@
 - 3 cloves **garlic**, minced
 - 1-2 tbsp **siling labuyo flakes** (or fresh, mashed)
 - 2 tbsp **patis (fish sauce) or toyo (soy sauce)**
-- 1 tsp **coconut sugar** (optional)
+- 1 tsp **coconut sugar or muscovado** (optional)
 - 1 tbsp **calamansi juice**
 
 **Instructions:**
 
 1. Salt the cabbage and soak in water for 1-2 hours.
 2. Rinse well and drain.
-3. Mix all ingredients into a paste and massage into cabbage.
+3. Mix all ingredients into a paste (you can use a blender for a smoother consistency) and massage into cabbage.
 4. Pack into a jar, leave at room temp for 2-5 days.
 5. Store in the fridge and enjoy!
 
